@@ -1,1 +1,0 @@
-# activity-01-Loyola
